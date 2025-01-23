@@ -143,5 +143,4 @@ Create a Pull Request 🚀
 
 📞 Contact
 
-For any queries, suggestions, or contributions, feel free to reach out at admin@baltibloggers.com or visit Balti Bloggers for more SEO and web development tools!
 
